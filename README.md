@@ -8,7 +8,7 @@ I am quite fond of the guy, but that hobby of his has been my favorite ribbing t
 
 Recently, after some very superficial soul searching, I came to the scary conclusion my wife had a while ago - I am just like him. Not by appearance, but by that damn hobby. I, too, build stuff.
 
-Now, being a software architect by trade, my stuff is bits and pieces of that software, but just like him, the process of actually making these them fit is frequently more gratifying that the actual result. Just like him, the parts do not necessarily seem to belong together at first, but seem made for each other in the end.
+Now, being a software architect by trade, my stuff is bits and pieces of that software, but just like him, the process of actually making them fit is frequently more gratifying that the actual result. Just like him, the parts do not necessarily seem to belong together at first, but seem made for each other in the end.
 
 This book (hopefully) is my attempt to organize these pieces and provide some thinking and a platform for discussion on the matter.
 
