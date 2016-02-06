@@ -1,5 +1,5 @@
 # Summary
 
 * [Introduction](README.md)
-* Application Structure
+* [Application Structure](application_structure.md)
 
