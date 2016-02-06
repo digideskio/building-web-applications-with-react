@@ -12,7 +12,7 @@ I am a software architect by trade and my stuff is bits and pieces of that softw
 
 This book (hopefully) is my attempt to organize my approach to making these parts fit.
 
-By the way, my father-in-law gets his revenge for my jokes - he gives his creations as a present. To us. Which, as you probably already understand, makes me even more like him - this being an _open-source software_ related book and all.
+By the way, my father-in-law always gets his revenge - he gives his creations out as a present. To us. Which makes me even more similar to him - this being an _open-source software_ related book and all.
 
 Hopefully the book won't take as much space on your balcony as the table does on mine.
 
