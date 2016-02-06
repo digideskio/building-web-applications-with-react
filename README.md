@@ -14,6 +14,6 @@ This book (hopefully) is my attempt to organize my approach to making these part
 
 By the way, my father-in-law always gets his revenge - he gives his creations out as presents. _To us_. Which makes me even more like him - this being an _open-source software_ related book and all.
 
-Hopefully the book won't take as much space on your balcony as the table does on mine.
+Hopefully the book won't take as much space on your balcony, gathering dust, as the table does on mine.
 
 Enjoy.
