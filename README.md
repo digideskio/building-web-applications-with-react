@@ -4,7 +4,7 @@ I can almost hear the disappointed _oohs_ and _aahs_ in the audience, but that's
 
 He is a semi-retired mechanical engineer and his spare-time hobby is building stuff. It may sound too vague, but it's only because this is exactly what he does. He can pass by some discarded office chair or some plywood, stop, think a little and move on. Then, 2 month later, he would present a movable, folding table.
 
-I am quite fond of the guy, but that hobby of his has been my favorite ribbing topic for the last decade or so. There hasn't been a family gathering without it coming up, much to my joy. He takes the laughs in stride too.
+I am pretty fond of the guy, but that hobby of his has been my favorite ribbing topic for the last decade or so. There hasn't been a family gathering without it coming up, much to my joy. He takes the laughs in stride too.
 
 Recently, after some very superficial soul searching, I came to the scary conclusion my wife had a while ago - I am just like him. Not by appearance, but by that damn hobby. I, too, build stuff.
 
