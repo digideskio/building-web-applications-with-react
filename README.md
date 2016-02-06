@@ -2,7 +2,7 @@ I am a married man.
 
 I can almost hear the disappointed _oohs_ and _aahs_ in the audience, but that's not what I came here to talk about. I am a married man _and_ I have a father-in-law.
 
-He is a semi-retired mechanical engineer and his spare-time hobby is building stuff. He can pass by some discarded office chair or some plywood, stop, think a little and move on. Then, 2 month later, he would present a movable, folding table.
+He is a semi-retired mechanical engineer and his spare-time hobby is building stuff out of, well, other stuff. He can pass by some discarded office chair or some plywood, stop, think a little and move on. Then, 2 month later, he would present a movable, folding table.
 
 I am pretty fond of the guy, but that hobby of his has been my favorite ribbing topic for the last decade or so. There hasn't been a family gathering without it coming up, much to my joy. He takes the laughs in stride too.
 
