@@ -6,7 +6,7 @@ He is a semi-retired mechanical engineer and his spare-time hobby is building st
 
 I am pretty fond of the guy, but that hobby of his has been my favorite ribbing topic for the last decade or so. There hasn't been a family gathering without it coming up, much to my joy. He takes the laughs in stride too.
 
-After recent, somewhat superficial, soul searching, I came to the scary conclusion my wife had a while ago - I am just like him. Not in appearance, but due to that hobby, among other things. I, too, build stuff.
+After a recent, somewhat superficial, soul searching, I came to the scary conclusion my wife had a while ago - I am just like him. Not in appearance, but due to that hobby, among other things. I, too, build stuff.
 
 I am a software architect by trade and _my_ stuff is bits and pieces of that software. Just like him, the process of actually making them fit is frequently more gratifying than the actual result. Just like him, the parts do not necessarily seem to belong together at first, but seem made for each other in the end.
 
